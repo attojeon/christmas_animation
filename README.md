@@ -19,7 +19,7 @@
   - https://pixabay.com/music/search/genre/christmas/
 
 ### 이미지
-  - 아토샘에게 있습니다. 
+  - 모든 권리는 아토샘에게 있습니다. 
 
 
 
